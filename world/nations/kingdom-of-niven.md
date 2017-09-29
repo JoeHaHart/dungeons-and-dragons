@@ -1,5 +1,6 @@
 # Kingdom Of Niven
-
+## Map
+![Map Of the Kingdom Of Niven](https://github.com/JoeHaHart/dungeons-and-dragons/blob/master/maps/kingdom-of-niven-old-map.png)
 ## The Four Pillars of society:
 - The Divine
 - The Military
