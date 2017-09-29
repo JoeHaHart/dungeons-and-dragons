@@ -1,6 +1,6 @@
 # The Road To War: A Tale Of The Knights Of Hune
 
-This is a campaign diary for a campaign started in 2017. It is set in the Kingdom of Niven.
+This is a campaign diary for a campaign started in 2017. It is set in the [Kingdom of Niven](https://github.com/JoeHaHart/dungeons-and-dragons/blob/master/world/nations/kingdom-of-niven.md).
 
 ### Prologue
 Good King Aelthred, ruler of the Divine Kingdom of Niven is dead. His successor must be chosen from his surviving heirs. As is tradition in Niven an election shall be held. The rulers of each of the great provinces and houses of Niven shall travel to the Capitol to cast their votes.
