@@ -1,15 +1,14 @@
 # Kingdom Of Niven
 
-The Four Pillars of society:
+## The Four Pillars of society:
 - The Divine
 - The Military
 - The Justice
 - The Government
- 
- 
-Ruled by King Aelred 3rd.
- 
-7 Provinces:
+
+Ruled by King Aelthred 3rd.
+
+## 7 Provinces:
 - Pyhonn
 - Nordhonn
 - Amerhonn
