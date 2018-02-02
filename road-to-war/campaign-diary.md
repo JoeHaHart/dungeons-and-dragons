@@ -58,3 +58,9 @@ Arriving in the Market District the party split off; some go shopping, some inve
 ### The Lost Warlock
 ### Priest Of Bahamut
 ### A Deal With The Devil
+### Onwards to the Capitol
+### Soldiers On The Road
+### The Old Bard in The Market District
+### Arriving at the palace
+### The banquet and carousing
+### 
