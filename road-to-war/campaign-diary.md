@@ -65,6 +65,7 @@ Arriving in the Market District the party split off; some go shopping, some inve
 ### The banquet and carousing
 ### The First Moot
 Our heroes were able to meet and judge the candidates for the Kingdom. The final elector arrives and it is Kennethor, Duke of Kilhonn.
+
 They meet the mad old ruler Amerhonn, who whispers to a possessed ring thinking the voice of his dead wife. The dead wife ring supports Theresa for the throne. After communing with their old friend Baphomet who they released from The Abyss previously, they find out the ring is actually being possessed by the forces of Cam'eh'run.
 ### A Marrital Affair
 The party goes after Arthur Wobblesnoot, Duke of Pyhonn. Inadvertently end up making him fall in love with Karen. They end up getting married, then setting up a duel between Amros Endhon and Wobblesnoot. In the ensuing duel Arthur is killed. With no children, his title goes to his wife Karen.
@@ -75,6 +76,7 @@ While all this going on an assassin attempts to take out some members of the par
 ### Some stuff happens.
 ### Vardri High Priest
 Through the election process the party meet Vardri the High Priest who is running the election and seems to favour Theresa, the youngest and least experienced of the candidates. The eventually go to confront him at the central Tower To The Divine in the heart of the city.
+
 There it is revealed that Vardri is in league with Kennethor. Kennethor was in a secret relationship with Theresa. The plan was to get her elected and Kennethor could become king.
 Though now it is revealed that forces darkness conspire to have Theresa on the throne, Vardri is having second thoughts.
 There is a great fight between Kennethor and the party. The party triumphs and Osbourne is pronounced King.
