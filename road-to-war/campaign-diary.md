@@ -82,3 +82,34 @@ Though now it is revealed that forces darkness conspire to have Theresa on the t
 There is a great fight between Kennethor and the party. The party triumphs and Osbourne is pronounced King.
 ### Long Live The King
 King Osbourne I takes the crown, now aware that the ancient protections his father put in place across the kingdom are waning. The barriers between worlds are opening. He must protect his kingdom and his people.
+
+## The Oncoming Storm
+
+### Preparing for the Storm
+Osbourne summons all of his dukes to his new throne room to tell them of Kennthor’s betrayal and death. He also announces that ancient protections maintained by his father are now waning. To prepare for the incoming waves of demons and fiends he commands his vassals to return to their cities. To fortify them and to take in any refugees from surrounding villages who need shelter.
+
+Vardri the High Priest protests, wishing to find a magical solution to the problem. Osbourne cuts him off. Vardri asks our heroes to follow him to the central tower to talk through his plan.
+
+### The Quest For The First Temple
+Vardri asks our heroes to ego to where the ruins of the first temple are in an attempt to find anything that could help with rebuilding the inter-planar defences.
+
+Our heroes protest this, saying they will not go on this quest without try backing from Vardri or some reward. Vardri has no reward to give. However, as in ancient times, he shall form The Inquisition. A free wing of the church that can act reactively in times of great need.
+
+He writes a document saying that Jiida is now the High Inquisitor of the realm, but forgets to sign it.
+
+Also the party asks for help to go with them to identify anything they need. Vardri suggests Hammond, brother of King Osbourne, who has been buried in books since his electoral defeat.
+
+### Having fun isn’t hard if you have a library card.
+While searching for Hammond our heroes get library cards, lifetime for Yargol and Jiida, 1 year for Shnook. They find Hammond in the agriculture section and get him to come with them to the first temple.
+
+They get out some books. Shnook gets A History of Obscure Wards and Spells , learning how to ward buildings from abyssal forces. Yargol gets a history of King Aelthread IV the Bloody, a short history of the mad rulers 3 year reign of terror. Heli looks up an ancient Druid stone tablet about pathways between realms.
+
+### Preparing for the road ahead
+With Hammond in tow the heroes return to their Duchal villa in the royal district. There they bump into Geoff Hune, who is packing up for his way back to Tilham and his duchy. He wishes them a fond farewell and blesses them to keep their title as the Knights Of Hune.
+
+The summon servants in the Villa of Wobblesnoot to make ready a wagon and supply’s. Jiida summons his celestial Mastiff mount.
+
+### The Uneventful Road
+On the road to the first temple they see refugees heading to the city. Jiida flashes these passers by his Library Card mistakenly instead of his High Inquisitor certificate.
+
+Eventually they come acrosss a wealthy market town a days ride from the capital. The find and inn nearby. The Black Rose, Shnook attempts to get a room for free with a song but the
